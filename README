@@ -1,0 +1,2 @@
+Devil no Densetsu
+=================
